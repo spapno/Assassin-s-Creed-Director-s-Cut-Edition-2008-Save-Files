@@ -1,4 +1,3 @@
-# Assassin-s-Creed-Director-s-Cut-Edition-2008-Save-Files
 # How To Use This Assassin's Creed™: Director's Cut Edition (2008) Save Files?
 
 ## Following Are The Steps
